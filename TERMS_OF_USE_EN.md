@@ -50,4 +50,5 @@ You will be notified of any significant changes within the app or through the co
 Contact Us
 
 If you have questions about these Terms, please contact us at: boundzai.app@gmail.com
+
 🛡 Boundzai was created to support your well-being. Your data is yours — always.
