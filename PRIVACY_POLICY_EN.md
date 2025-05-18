@@ -39,7 +39,7 @@ Any changes will be posted in the app or on our official website, and we will no
 
 Contact Us
 
-If you have any questions or concerns about this Privacy Policy, please contact us at: [your email address]
+If you have any questions or concerns about this Privacy Policy, please contact us at: boundzai.app@gmail.com
 
 🔒 Your privacy matters. Your data stays yours.
 
